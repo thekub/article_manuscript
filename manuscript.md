@@ -1,2 +1,2 @@
 # Manuscript
-Autor: Katrin G
+Autor: Katrin G.
