@@ -1,3 +1,3 @@
 # Manuscript
 Autor: Katrin G.
-Title: Bald ist Wochenende
+Title: Bald ist Wochenende!
